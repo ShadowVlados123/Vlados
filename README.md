@@ -1,2 +1,0 @@
-# Vlados
-Stalinizm
